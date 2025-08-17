@@ -12,7 +12,7 @@ VPN
 📺 流媒体解锁
 💝 全部部分1倍率节点
 😐 适配Clash，小飞机，V2ray等开源客户端
-💋 邀请 affman 35%返利,可购买套餐可提现
+💋 邀请 affman 30%返利,可购买套餐可提现
  👤 如有遇到问题，及时工单联系客服
 官网：https://www.starlinkcloud.top/
 官网：https://wwe.starlinkcloud.me/
