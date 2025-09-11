@@ -15,4 +15,4 @@ VPN
 💋 邀请 affman 30%返利,可购买套餐可提现
  👤 如有遇到问题，及时工单联系客服
 官网：https://www.starlinkcloud.top/
-官网：https://wwe.starlinkcloud.me/
+官网：https://www.starlinkcloud.me/
